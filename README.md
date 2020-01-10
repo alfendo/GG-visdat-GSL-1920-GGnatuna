@@ -1,0 +1,1 @@
+# GG-visdat-GSL-1920-GGnatuna
